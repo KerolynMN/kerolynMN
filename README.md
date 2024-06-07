@@ -1,4 +1,4 @@
-## Hi there 👋
+## só uma estudante que tem que estudar
 
 <!--
 **KerolynMN/kerolynMN** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
